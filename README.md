@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @AntoshaKuzmin, my name is Anton, I'm 33. I live in Barnaul, Russia.
+- 👀 I’m interested in computer science, dancing, fitness and English.
+- 📫 How to reach me - tg: Antosha Chehonte https://t.me/AntoshaChehonte1989
